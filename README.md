@@ -1,8 +1,12 @@
 # Ionic-Medicine-DIY
 
+#### [Therapeutic Electrolsis](https://www.electrolisisterapeutica.com/en/tag/epte-official-center/)
+
 ## [DIY Ionic Machine. Shows usage and how to make at 1 minute or so onward.](https://youtu.be/JWsRKP0uPOY?t=78)
 
 ## [Testimonials](https://www.amazon.com/Cleanse-Machine-Vitality-Booklet-Brochure/dp/B00LFW6Y48?th=1)
+
+## [Electrolytes and Health](https://www.medicalnewstoday.com/articles/153188)
 
 I purchased this product because I got desperate. I have a lot of inflammation & joint issues. 
 
@@ -52,4 +56,3 @@ When ions reach an electrode, they gain or lose electrons. As a result, they for
 bromide ions are attracted to the positive electrode.
 
 Lead and bromine form during the electrolysis of molten lead bromide
-
