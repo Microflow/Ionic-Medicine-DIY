@@ -1,12 +1,28 @@
 # Ionic-Medicine-DIY
 
-#### [Therapeutic Electrolsis](https://www.electrolisisterapeutica.com/en/tag/epte-official-center/)
+### Electrolytes are chemicals that conduct electricity when dissolved in water.
 
-## [DIY Ionic Machine. Shows usage and how to make at 1 minute or so onward.](https://youtu.be/JWsRKP0uPOY?t=78)
+- They regulate nerve and muscle function, hydrate the body, balance blood acidity and pressure, and help rebuild damaged tissue.
 
-## [Testimonials](https://www.amazon.com/Cleanse-Machine-Vitality-Booklet-Brochure/dp/B00LFW6Y48?th=1)
+- The muscles and neurons are sometimes referred to as the “electric tissues” of the body. They rely on the movement of electrolytes through the fluid inside, outside, or between cells.
 
-## [Electrolytes and Health](https://www.medicalnewstoday.com/articles/153188)
+- The electrolytes in human bodies include:
+
+- sodium
+- potassium
+- calcium
+- bicarbonate
+- magnesium
+- chloride
+- phosphate
+
+### [Therapeutic Electrolsis](https://www.electrolisisterapeutica.com/en/tag/epte-official-center/)
+
+### [DIY Ionic Machine. Shows usage and how to make at 1 minute or so onward.](https://youtu.be/JWsRKP0uPOY?t=78)
+
+### [Testimonials](https://www.amazon.com/Cleanse-Machine-Vitality-Booklet-Brochure/dp/B00LFW6Y48?th=1)
+
+### [Electrolytes and Health](https://www.medicalnewstoday.com/articles/153188)
 
 I purchased this product because I got desperate. I have a lot of inflammation & joint issues. 
 
