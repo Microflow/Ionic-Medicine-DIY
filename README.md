@@ -1,5 +1,7 @@
 # Ionic-Medicine-DIY
 
+### [Electro-facts about the Human Body](https://www.electrical4u.net/electrical-basic/10-facts-electricity-human-body/)
+
 ### Electrolytes are chemicals that conduct electricity when dissolved in water.
 
 - They regulate nerve and muscle function, hydrate the body, balance blood acidity and pressure, and help rebuild damaged tissue.
